@@ -51,7 +51,7 @@ Ferramentas: Pacote Office (Word, Excel, PowerPoint).
 
 PosiçãoEmpresaPeríodoFoco
 
-Assistente Administrativo 
+Assistente Administrativo Bilíngue
 
 COC Lago Norte Bilingual School - Brasília/DF 
 
